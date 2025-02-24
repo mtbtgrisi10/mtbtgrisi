@@ -3,7 +3,7 @@
 <a href="https://ibb.co/M5LnDGS">🔗 1xBet ⭐ 2025 En Güncel Giriş ⭐ Özel Bonus ve Kampanyalar</a>
 
 <a href="https://ibb.co/M5LnDGS" title="1xBet Güncel Giriş">
-    <img src="https://i.ibb.co/gbBPst9F/photo-2025-02-11-01-55-32.jpg" alt="1xBet Güncel Giriş" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
+    <img src="https://i.ibb.co/4gxWZYt/r2.gif" alt="1xBet Güncel Giriş" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
 </a>
 
 🎰 **1xBet** ile 2025’te şansınızı zirveye taşıyın!  
